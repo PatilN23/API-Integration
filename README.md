@@ -1,0 +1,6 @@
+![screencapture-127-0-0-1-5500-info-html-2024-03-16-10_53_33 (1)](https://github.com/PatilN23/API-Integration/assets/146844731/f0c3b4cb-2926-454f-a965-0abf4433e84f)
+![screencapture-127-0-0-1-5500-info-html-2024-03-16-10_50_51](https://github.com/PatilN23/API-Integration/assets/146844731/3ee3174e-381f-4c9d-acb4-6b804f331d25)
+![screencapture-127-0-0-1-5500-info-html-2024-03-16-10_51_20](https://github.com/PatilN23/API-Integration/assets/146844731/42b23bae-8b3c-42ed-8bd5-0977cbc66254)
+![screencapture-127-0-0-1-5500-info-html-2024-03-16-10_52_42](https://github.com/PatilN23/API-Integration/assets/146844731/0464d187-41b2-4f33-b29e-0b0690822b6b)
+![screencapture-127-0-0-1-5500-info-html-2024-03-16-10_53_14](https://github.com/PatilN23/API-Integration/assets/146844731/30b9aac0-c8ca-4b95-9bb1-da36e475923a)
+![screencapture-127-0-0-1-5500-info-html-2024-03-16-10_53_33](https://github.com/PatilN23/API-Integration/assets/146844731/e6c12683-b7e1-4100-a29a-0a7a27612990)
